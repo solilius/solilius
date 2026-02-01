@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey I'm Sol 🎵 a Game Developer<br>Mostly experienced as a Full-Stack but not chasing the gaming dream 👾
+Hey I'm Sol 🎵 a Game Developer<br>Mostly experienced as a Full-Stack but now chasing the gaming dream 👾
 
 
 ## 🌐 Socials:
